@@ -1,1 +1,1 @@
-# hello-world
+In this course, I would like to learn how I can  make wonderful websites. I am totally new to this domain of how to make websites from scratch. However, I know, at the end of this course I will be able to make websites to an extent after learning through this course. Our professor is very coperative with students and helpful and make us feel very comfortable in the class. I think, I will learn alot from professor and fellow students.
